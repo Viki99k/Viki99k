@@ -19,7 +19,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/192a28T4o0CSOkGHwfZhvCEBav6pB5aPk/view?usp=drive_link](https://drive.google.com/file/d/192a28T4o0CSOkGHwfZhvCEBav6pB5aPk/view?usp=drive_link)
 
-- ⚡ Fun fact  **52-Hertz Whale**, calling out my code into the vast digital ocean! 🐋
+- ⚡ I am as lonely as the **52-Hertz Whale**, calling out my code into the vast digital ocean! 🐋
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
